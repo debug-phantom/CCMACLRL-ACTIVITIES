@@ -1,0 +1,2 @@
+# CCMACLRN-ACTIVITIES
+All Activities
